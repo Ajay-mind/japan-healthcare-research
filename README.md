@@ -22,7 +22,7 @@ Our objective is to understand:
 https://ajay-mind.github.io/japan-healthcare-research/
 
 ## Contact
-Ajay Sisodhya
+Ajay
 Research Lead
-Email
-LinkedIn
+Email : ajaysisodiya8802@gmail.com
+LinkedIn : https://www.linkedin.com/in/ajay-sisodhya-b77826142/
